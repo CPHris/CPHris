@@ -2,5 +2,5 @@
 - 👀 I’m interested movies, music, indie games and roller skating
 - 🌱 I’m currently learning ML
 - 💞️ I’m looking to collaborate on cool stuff
-- 📫 Drop me a line at www.linkedin.com/in/sorensen
+- 📫 Drop me a line at chris_sorensen@live.com
 - ⚡ Fun fact: The fear of long words is called hippopotomonstrosesquipedaliophobia
